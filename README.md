@@ -2,7 +2,14 @@
 
 Recientemente, el nombre de Ana Luiza, o conocida como OliviaRoomano exparticipante del reality de la Isla de las Tentaciones enfrentan una fuerte polémica después que surgieron un video íntimo en conjunto con Miiky, un actor y creador de contenido que ha despertado el interés del público después de la filtración del clip privado en Telegram.
 
-La difusión del video comprometedor se conoció después que Ana y Fran ambos pareja del reality decidieran abandonar el programa tras una hoguera de confrontaciones relacionadas con la infidelidad de Fran con Mariana López.
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
+📺📱👉◄◄🔴  https://tinyurl.com/5n6bjbnr
+
 
 Este evento dejó al público atónico, y sumando a esto el acontecimiento que acaparó la atención de miles de internautas; la filtración de un clip que muestra a Ana con Miiky sosteniendo un encuentro sexual. Aunque Oliviaroomano es una popular creadora de contendió para adultos ha dejado con múltiples reacciones en torno al material.
 
